@@ -4,4 +4,10 @@ alice (kale)
 
 Virgos make everything orderly!
 Everyone needs us to make the world nice and tidy.
+happy birthday!!
+
+Bob = Sara
+Carol = Christopher
+Ted = Stephon
+Alice = Kale
 
