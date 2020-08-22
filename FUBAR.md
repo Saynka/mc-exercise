@@ -2,5 +2,6 @@ This is what Bob(sara0 & Carol(christopher) did on Bob’s computer when working
 ted(stephon) 
 alice (kale)
 
-
+Virgos make everything orderly!
+Everyone needs us to make the world nice and tidy.
 
